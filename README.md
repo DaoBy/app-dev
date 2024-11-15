@@ -1,2 +1,2 @@
 # app-dev
-My first repository
+:joy:  ONE OF MY FAVORITE ANIME IS HYOUKA  :joy:
